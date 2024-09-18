@@ -1,1 +1,1 @@
-Bloquer les appels téléphoniques et les SMS
+🇫🇷 Bloquer les appels téléphoniques et les SMS
